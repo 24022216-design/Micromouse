@@ -2,5 +2,9 @@
 Dự án micromouse của mình. 
 
 
-Uploading 2aOboR376GBFQRalkRbyynyvwmZzVqngF8YNDoC8.mp4…
+
+
+https://github.com/user-attachments/assets/66258f77-2128-40b5-b391-3fb0c81ca374
+
+
 
